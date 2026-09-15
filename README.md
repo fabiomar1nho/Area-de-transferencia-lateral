@@ -1,0 +1,1 @@
+# Area-de-transferencia-lateral
